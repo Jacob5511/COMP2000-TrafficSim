@@ -2,8 +2,6 @@
 
 **Student:** Iakov Dergachev
 
-**Completion note:** The Weeks 8-13 entries were completed using my project history, the supplied weekly activities and the showcase projects I remembered seeing in class.
-
 ## Week 1 - Team Based Learning
 
 **Team name:** No formal team name was recorded.
