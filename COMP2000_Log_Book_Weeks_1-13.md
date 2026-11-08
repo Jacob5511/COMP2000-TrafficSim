@@ -4,7 +4,7 @@
 
 ## Week 1 - Team Based Learning
 
-**Team name:** No formal team name was recorded.
+**Team name:** TBD
 
 **Team members:** Ali, Henry, Oscar, Callum, Jubril, Ben, Jacob, Addrita and Cam.
 
